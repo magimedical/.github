@@ -1,3 +1,5 @@
 # Magi
 
-Visit us at [https://magi-medical.com](https://magi-medical.com) 
+Our website is [https://magi-medical.com](https://magi-medical.com) 
+
+
